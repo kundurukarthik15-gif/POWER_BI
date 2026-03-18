@@ -123,8 +123,8 @@ This repository is part of my journey to:
 
 ## 📬 Connect With Me
 
-* GitHub: 
-* LinkedIn: 
+* GitHub: https://github.com/kundurukarthik15-gif
+* LinkedIn: www.linkedin.com/in/karthik-kunduru-517836332
 
 ---
 
